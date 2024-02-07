@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Grimfox1
+- 👀 I’m interested in games and coding
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on non
+- 📫 How to reach me 
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: like to read
